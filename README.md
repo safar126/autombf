@@ -1,2 +1,2 @@
 # autombf
-pake yg ngotak yg qmack
+pake yg ngotak ya qmack
